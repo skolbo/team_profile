@@ -27,4 +27,4 @@ I can be reached at sskolbo88@yahoo.com.
 
 ## Recording
 
-https://drive.google.com/file/d/1U9iMuMNm84Kjiyr_yTOiCz4NoqkLjmlK/viewgi
+https://drive.google.com/file/d/1U9iMuMNm84Kjiyr_yTOiCz4NoqkLjmlK/view
